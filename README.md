@@ -4,8 +4,9 @@ Welcome to the ultimate **Crypto Casino Bonus Guide for 2026**. This long-form r
 
 ---
 
-> ⭐ **EXCLUSIVE PROMO:** Claim your **$250 Registration Bonus** today → **[Get $250 Bonus Now](https://winaspin.cc/auth/register?promo=2026)**
+⭐ **EXCLUSIVE PROMO:** Claim your **$250 Registration Bonus** today → **[Get $250 Bonus Now](https://winaspin.cc/auth/register?promo=2026)**
 
+![Crypto Casino Bonus 2026](https://github.com/bonused/crypto-casino-bonus-2026/blob/main/Casino%20Bonus%20Illustration%201.png)
 
 # Table of Contents
 - [What Is a Crypto Casino Bonus?](#what-is-a-crypto-casino-bonus)
